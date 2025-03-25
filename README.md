@@ -1,0 +1,1 @@
+I am trying to make a Dragon Age The Veilguard character build guide. I will be linking sites that I have found that should help others with their builds. I chose this topic because it is something that I know and am comfortable with. 
